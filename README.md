@@ -1,5 +1,8 @@
 ## Hi, I'm Miskie 👋
 
+![miskiee](https://github.com/user-attachments/assets/645ba02c-e985-43e2-9ad8-06a172415e56)
+
+
 <!--
 **miskexx/miskexx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
